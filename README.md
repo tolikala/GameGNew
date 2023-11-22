@@ -1,1 +1,1 @@
-# GameGNew
+https://dlgozeg.drsgems.com/DownloadApp/1.0.0
